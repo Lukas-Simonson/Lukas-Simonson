@@ -3,4 +3,4 @@
 - I’m currently learning Android, IOS, and Unity development.
 - I’m looking to collaborate on any of the above types of projects.
 - How to reach me : You can reach me at my Email ( Listed Below )
-                    - lukassimonson@hydradesign.co
+                    - lukas@hydradesignllc.com
